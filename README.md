@@ -289,8 +289,3 @@ After work:
 ---
 
 
-
-
-
-
-Just reply with **what you want next** 👌
